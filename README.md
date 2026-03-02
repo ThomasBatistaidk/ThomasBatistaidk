@@ -2,4 +2,4 @@
   ࣪ ִֶָ☾. 𝒯𝓊𝒹𝑜 é 𝒽𝑜𝓇𝓇í𝓋𝑒𝓁 𝑒 é 𝓊𝓂𝒶 𝒷𝑜𝓈𝓉𝒶 >⩊< ˊˎ-
            ⊹₊˚‧︵‿₊୨ᰔ୧₊‿︵‧˚₊⊹
 ## ❀ ᴄᴜʀꜱᴏ ᴅᴇ ᴅᴇꜱᴇɴᴠᴏʟᴠɪᴍᴇɴᴛᴏ ᴅᴇ ꜱɪꜱᴛᴇᴍᴀꜱ
-![](https://media1.tenor.com/m/cES3rXud_JMAAAAd/eggman-speech-bubble.gif)
+![](https://media1.tenor.com/m/LPgcnWvOYC8AAAAC/metal-metal-sonic.gif)
