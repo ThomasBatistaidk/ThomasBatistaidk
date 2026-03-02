@@ -5,7 +5,7 @@
 ❀
 ❀
 ❀
-![]((https://media1.tenor.com/m/cES3rXud_JMAAAAd/eggman-speech-bubble.gif))
+![](https://media1.tenor.com/m/cES3rXud_JMAAAAd/eggman-speech-bubble.gif)
 <!--
 **ThomasBatistaidk/ThomasBatistaidk** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
