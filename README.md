@@ -1,7 +1,11 @@
 ## 𝒜 𝓋𝒾𝒹𝒶 𝓃ã𝑜 𝓋𝒶𝓁𝑒 𝒶 𝓅𝑒𝓃𝒶 𝓈𝑒𝓇 𝓋𝒾𝓋𝒾𝒹𝒶‧₊ ᵎᵎ 🍒 ⋅ ˚✮
-  ࣪ ִֶָ☾. 𝒯𝓊𝒹𝑜 é 𝒽𝑜𝓇𝓇í𝓋𝑒𝓁 𝑒 é 𝓊𝓂𝒶 𝒷𝑜𝓈𝓉𝒶 >⩊<
-
-![](https://media1.tenor.com/m/CFlT3Zlwz6YAAAAd/good-night.gif)
+  ࣪ ִֶָ☾. 𝒯𝓊𝒹𝑜 é 𝒽𝑜𝓇𝓇í𝓋𝑒𝓁 𝑒 é 𝓊𝓂𝒶 𝒷𝑜𝓈𝓉𝒶 >⩊< ˊˎ-
+           ⊹₊˚‧︵‿₊୨ᰔ୧₊‿︵‧˚₊⊹
+❀ ᴄᴜʀꜱᴏ ᴅᴇ ᴅᴇꜱᴇɴᴠᴏʟᴠɪᴍᴇɴᴛᴏ ᴅᴇ ꜱɪꜱᴛᴇᴍᴀꜱ
+❀
+❀
+❀
+![]([https://media1.tenor.com/m/CFlT3Zlwz6YAAAAd/good-night.gif](https://media1.tenor.com/m/cES3rXud_JMAAAAd/eggman-speech-bubble.gif))
 <!--
 **ThomasBatistaidk/ThomasBatistaidk** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
