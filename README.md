@@ -1,5 +1,5 @@
-## 𝒜 𝓋𝒾𝒹𝒶 𝓃ã𝑜 𝓋𝒶𝓁𝑒 𝒶 𝓅𝑒𝓃𝒶 𝓈𝑒𝓇 𝓋𝒾𝓋𝒾𝒹𝒶‧₊ ᵎᵎ 🍒 ⋅ ˚✮
-  ࣪ ִֶָ☾. 𝒯𝓊𝒹𝑜 é 𝒽𝑜𝓇𝓇í𝓋𝑒𝓁 >⩊< ˊˎ-
-           ⊹₊˚‧︵‿₊୨ᰔ୧₊‿︵‧˚₊⊹
+## Yo
+Thomas Batista¹⁶ʸ
+
 # ᴄᴜʀꜱᴏ ᴅᴇ ᴅᴇꜱᴇɴᴠᴏʟᴠɪᴍᴇɴᴛᴏ ᴅᴇ ꜱɪꜱᴛᴇᴍᴀꜱ
 ![](https://media1.tenor.com/m/LPgcnWvOYC8AAAAC/metal-metal-sonic.gif)
