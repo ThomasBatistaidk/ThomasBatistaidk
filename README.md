@@ -1,7 +1,6 @@
 
 ¹⁶ʸ
-
 Desenvolvimento de sistemas
 
-![](https://media1.tenor.com/m/tMq4z4rN0QkAAAAC/reala-nights-into-dreams.gif)
+![](https://media1.tenor.com/m/-61VoVg2JbIAAAAd/reala-ok.gif)
 
