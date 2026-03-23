@@ -1,4 +1,4 @@
-## Yo
+
 ¹⁶ʸ
 
 Desenvolvimento de sistemas
