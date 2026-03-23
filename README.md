@@ -3,5 +3,5 @@
 
 Desenvolvimento de sistemas
 
-![](https://tenor.com/pt-BR/view/reala-nights-into-dreams-kill-yourself-die-nights-gif-25549319)
+![](https://media1.tenor.com/m/tMq4z4rN0QkAAAAC/reala-nights-into-dreams.gif)
 
