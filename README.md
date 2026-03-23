@@ -2,7 +2,6 @@
 ¹⁶ʸ
 
 Desenvolvimento de sistemas
-Life still going on
 
-![](https://media.tenor.com/8Jv7pGqz7VQAAAAC/reala-nights-into-dreams.gif)
+![](https://tenor.com/pt-BR/view/reala-nights-into-dreams-kill-yourself-die-nights-gif-25549319)
 
